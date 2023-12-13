@@ -27,5 +27,6 @@ MC무현 - 첫사랑 (백아 - 첫사랑의 표절곡), 노무현식 돌아버�
 로블록스 스튜디오에서 국정원 지하실 개발하고 있음.
 프로게이머가 되고 싶어서 하루에 6시간씩 3개월동안 발로란트만 했는데 다이아까지 밖에 못가서 포기함.
 
-#Contact
+
+# Contact
 Discord : 815stoneㅣDcinside : superglideㅣTelegram : supergl1deㅣroblox : 815stoneㅣemail : 5never2lose3@gmail.com
