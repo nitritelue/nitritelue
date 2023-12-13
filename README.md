@@ -29,4 +29,4 @@ MC무현 - 첫사랑 (백아 - 첫사랑의 표절곡), 노무현식 돌아버�
 
 
 # Contact
-Discord : 815stoneㅣDcinside : superglideㅣTelegram : supergl1deㅣroblox : 815stoneㅣemail : 5never2lose3@gmail.com
+Discord : 815stoneㅣDCinside : superglideㅣTelegram : supergl1deㅣroblox : 815stoneㅣemail : 5never2lose3@gmail.com
