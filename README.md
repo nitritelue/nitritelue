@@ -1,6 +1,6 @@
 <h1>Hello, World!</h1>
 
-**I'am NeverLose, developer from s.korea 🇰🇷**
+**I'am NeverLose, developer from S.Korea 🇰🇷**
 
 **5never2lose3@gmail.com**
 
