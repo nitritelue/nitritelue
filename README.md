@@ -2,9 +2,9 @@
 
 **Im NeverLose, developer from S.Korea 🇰🇷**
 
-**discord 815stone**
+**discord : 815stone**
 
-**telegram supergl1de**
+**telegram : supergl1de**
 
 
 <br />
