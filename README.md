@@ -9,4 +9,4 @@ Voltaic Master Complete
    노벨피아TS피폐암타인방착각조교현대하렘먼치킨순애NTRBSS판타지빙의복수전이이세계무협아포칼립스러브코미디물중독자
 
 # Contact
-Discord : reyuhii
+Discord : xerrba
