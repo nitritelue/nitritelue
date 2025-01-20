@@ -8,4 +8,4 @@
     
 
 # Contact
-Discord : nitritelue
+Discord : nitritelue | Telegram : nitritelue
